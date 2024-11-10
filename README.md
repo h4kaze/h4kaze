@@ -2,5 +2,5 @@
 
 
 
-　　　　　　　　　　　　　　　　  　[rntry](https://rentry.co/mayochi) !　　　　　　/　　　　　　iwc unless close !
+　　　　　　　　　　　　　　　　　  　[rntry](https://rentry.co/mayochi) !　　　　　　/　　　　　　iwc unless close !
 　　　　　　　　　　　　
