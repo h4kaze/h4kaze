@@ -2,5 +2,5 @@
 
 
 
-　　　　　　　　　　　　　　　　　  　[rntry](https://rentry.co/mayochi) !　　　　　　/　　　　　　iwc u. close !
+　　　　　　　　　　　　　　　　　  　rntry wip o _ o  !　　　　　　/　　　　　　iwc u. close !
 　　　　　　　　　　　　
